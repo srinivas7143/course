@@ -12,3 +12,5 @@ https://chat.whatsapp.com/invite/FwbhKBXVz0D0XTLu2YqTOd
 
 
 https://www.quora.com/search?q=free+linuxacademy+videos
+
+http://gen.lib.rus.ec/
