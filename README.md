@@ -9,3 +9,6 @@ vagrant
 https://drive.google.com/uc?id=1kd55W8j-8tPOG5eSqDsItcE5IL5YCUHF&export=download
 
 https://chat.whatsapp.com/invite/FwbhKBXVz0D0XTLu2YqTOd
+
+
+https://www.quora.com/search?q=free+linuxacademy+videos
